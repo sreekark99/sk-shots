@@ -1,2 +1,2 @@
 ### SK SHOTS!
-# PICTURES ARE NOT FOR SHARING
+# Feel free to check em out, however, they are not for sharing!
